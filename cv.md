@@ -1,6 +1,6 @@
 # Kirill Savin
 ---
-
+![me](/IMG_20220713_134949.jpg)
 
 ---
 ### Personal Info
